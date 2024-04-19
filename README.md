@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @purpenn
-- 👀 I’m interested in videos, music, programming, etc..
+- 👀 I’m interested in video editing, drawing, music making and programming.
 - 🌱 I’m currently learning how to draw.
 - 💞️ I’m looking to collaborate on edits.
 - ⚡ Fun fact: I have a really bad mental health :).

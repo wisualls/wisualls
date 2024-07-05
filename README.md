@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @purpenn
+- 👋 Hi, I’m @wisualls
 - 👀 I’m interested in video editing, drawing, music making and programming.
 - 🌱 I’m currently learning how to draw.
 - 💞️ I’m looking to collaborate on edits.
